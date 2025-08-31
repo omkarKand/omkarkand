@@ -1,1 +1,1 @@
-## Hi👋, I'm Omkar Kan
+## Hi👋, I'm Omkar Kand
